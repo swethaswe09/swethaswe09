@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **swethaboddu09@gmail.com**
 
-- 📄 Know about my experiences [https://swethaboddu.com/swetharesume.pdf](https://swethaboddu.com/swetharesume.pdf)
+- 📄 Know about my experiences [https://swethaboddu.com/resume.pdf](https://swethaboddu.com/resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
